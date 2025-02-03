@@ -1,2 +1,2 @@
-# CORN
+# STRANGER
 HIII
